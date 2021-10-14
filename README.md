@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning how to dodge chinese hackers
 - 💞️ I’m looking to collaborate on the cold war
 - 📫 How to reach me chuck e cheese office 972-258-8507. 
+- i own over 37000 paintings of putin himself
 
 <!---
 Putins-penpal/Putins-penpal is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
